@@ -1,0 +1,2 @@
+# PastaZip_Atualisada_04_07_2025_Sexta_feira
+Essa é a pasta PastaZip_Atualisada_04_07_2025_Sexta_feira
